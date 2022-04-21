@@ -1,4 +1,4 @@
-Hola, mi nombre es ALejandro, actualmente vivo en Coronel Dorrego, sur de la provincia de Buenos Aires.
+Hola, mi nombre es Alejandro, actualmente vivo en Coronel Dorrego, sur de la provincia de Buenos Aires.
 
 Desde muy chico apasionado por la electronica y las comunicaciones.
 
