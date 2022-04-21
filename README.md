@@ -2,7 +2,7 @@ Hola, mi nombre es Alejandro, actualmente vivo en Coronel Dorrego, sur de la pro
 
 Desde muy chico apasionado por la electronica y las comunicaciones.
 
-Recibido de Tecnico en Electronica, tengo taller propio de reparacion de radios de comunicaciones VHF, y lo que se cruce tambien, aunque no me convence hacer otras cosas.
+Recibido de Tecnico en Electronica en el 2006, tengo taller propio de reparacion de radios de comunicaciones VHF, y lo que se cruce tambien, aunque no me convence hacer otras cosas.
 
 Desde el año 2009 a la fecha, mi otra actividad laboral es la Refrigeracion, mas especificamente instalacion y reparacion de Aires Acondicionados.
 
